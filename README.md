@@ -13,3 +13,5 @@
 ## 微信小程序  
 微信扫描小程序码  
 ![](https://github.com/omxmo/yh/blob/main/xcx.png)  
+   
+![](https://github.com/omxmo/yh/blob/main/hb.png)  
