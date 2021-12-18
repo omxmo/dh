@@ -8,10 +8,6 @@
 或者扫描二维码下载  
 ![](https://github.com/omxmo/yh/blob/main/app.png)  
    
-## 微信小程序  
-微信扫描小程序码  
-![](https://github.com/omxmo/yh/blob/main/xcx.png)  
-   
 ![](https://github.com/omxmo/yh/blob/main/hb.png)  
   
 ##### 欢迎Star和Fork，实时更新全网最新优惠抢购/免单活动线报  
