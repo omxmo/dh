@@ -18,4 +18,4 @@
 或者扫描二维码下载  
 ![](https://github.com/omxmo/yh/blob/main/app.png)  
   
-##### 欢迎Star和Fork，实时更新全网最新优惠抢购/免单活动线报  
+# 欢迎Star和Fork，长期更新  
