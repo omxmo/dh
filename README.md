@@ -1,5 +1,5 @@
 # 实时线报  
-点击线报链接：[优惠线报](https://resoumen.com/u/?cid=j7TyGTb&tmp=rt_xb&code=j7TyGTb&sp=#/sp "点击链接")  
+点击线报链接：[实时优惠线报](https://resoumen.com/u/?cid=j7TyGTb&tmp=rt_xb&code=j7TyGTb&sp=#/sp "点击链接")  
 
 # 全网优惠  
 饿了么/美团外卖/美团优选红包，滴滴打车/花小猪打车/高德打车优惠券，淘票票/猫眼电影抵用券，肯德基/麦当劳/星巴克优惠券，团油加油。  
