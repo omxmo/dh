@@ -1,6 +1,7 @@
 - 更新不易，记得 `Fork` 和 `Star` 
 ### 实时线报
-打卡0元购：[【打卡300天保底返3000元】爱奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机 骁龙XR2 PC串流Steam游戏](https://u.jd.com/EtYWqDX "【打卡300天保底返3000元】爱奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机 骁龙XR2 PC串流Steam游戏")
+##### 2022年5月14日
+打卡0元购：[【打卡保底返3000元】爱奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机 骁龙XR2 PC串流Steam游戏](https://u.jd.com/EtYWqDX "【打卡300天保底返3000元】爱奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机 骁龙XR2 PC串流Steam游戏")
 
 ### 优惠线报
 实时线报QQ群：[点击加入](https://jq.qq.com/?_wv=1027&k=JuvO5aov "点击加入")
