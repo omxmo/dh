@@ -1,4 +1,4 @@
-- 更新不易，记得 `Fork` 和 `Star` 
+- 长期更新不易，记得 `Fork` 和 `Star` 
 ### 实时线报
 ##### 2022年5月14日
 打卡0元购：[【打卡保底返3000元】爱奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机 骁龙XR2 PC串流Steam游戏](https://u.jd.com/EtYWqDX "【打卡300天保底返3000元】爱奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机 骁龙XR2 PC串流Steam游戏")
@@ -6,7 +6,7 @@
 ### 优惠线报
 实时线报QQ群：[点击加入](https://jq.qq.com/?_wv=1027&k=JuvO5aov "点击加入")  
 微信群，扫码添加微信邀请加入，备注：线报  
-![](https://github.com/omxmo/yh/blob/main/wx.png)
+![](https://github.com/omxmo/xb/blob/main/wx.png)
 ### 最新活动
 |主流电商|外卖点餐|出行|充值|
 | :------------: | :------------: | :------------: | :------------: |
@@ -23,4 +23,4 @@
 ### 线报聚合APP
 活动太多，不便一一展示，为了方便大家随时随地获取最新新报，做成了一个聚合APP。  
 扫码下载APP  
-![](https://github.com/omxmo/yh/blob/main/app.png)
+![](https://github.com/omxmo/xb/blob/main/app.png)
