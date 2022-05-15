@@ -2,7 +2,9 @@
 ### 实时线报
 |更新时间|活动线报|参与方式|
 | :------------: | :------------: | :------------: |
-|5月12日|`打卡0元购` 奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机|[点击](https://u.jd.com/EtYWqDX "点击链接")|
+|5月15日|`免费会员` 免费领取携程超级会员月卡|[点击链接](https://m.ctrip.com/webapp/supermember/activityreceivemonth "点击链接")|
+|5月15日|`免费会员` 免费领取30天起点读书APP会员卡|[点击链接](https://ataru.qidian.com/noah/202205125 "点击链接")|
+|5月12日|`打卡0元购` 奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机|[点击链接](https://u.jd.com/EtYWqDX "点击链接")|
 
 ### 优惠线报
 实时线报QQ群：[点击加入](https://jq.qq.com/?_wv=1027&k=JuvO5aov "点击加入")  
