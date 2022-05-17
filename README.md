@@ -2,7 +2,7 @@
 ### 实时线报
 |更新时间|活动线报|参与方式|
 | :------------: | :------------: | :------------: |
-|5月17日|`程序员护眼` 修正蓝莓叶黄素片近视护眼保健|[点击链接](https://s.click.taobao.com/1fdXdXu "点击链接")|
+|5月17日|`程序员护眼` 修正蓝莓叶黄素片近视护眼保健14.9元|[点击链接](https://s.click.taobao.com/1fdXdXu "点击链接")|
 |5月16日|`千万补贴` 拼多多官方补贴真的是良心价，森马T恤29元，程序员也要潮流|[点击链接](https://p.pinduoduo.com/djv1E3jo "点击链接")|
 |5月16日|`白菜价` 3斤山东烟台大樱桃车厘子25.8元包邮|[点击链接](https://s.click.taobao.com/gAD3sXu "点击链接")|
 |5月16日|`无门槛立减4元神券` 高德打车20元券包|[点击链接](https://cache.gaode.com/activity/partner/2021PartnerTaxiGetNew/index.html?gd_from=4wi4Fjj613C "点击链接")|
