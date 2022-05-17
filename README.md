@@ -11,7 +11,7 @@
 |5月12日|`打卡0元购` 爱奇艺奇遇Dream Pro 8G+128G标准版 4K VR一体机|[点击链接](https://u.jd.com/EtYWqDX "点击链接")|
 
 ### 线报群
-实时线报QQ群：[点击加入QQ群](https://jq.qq.com/?_wv=1027&k=JuvO5aov "点击加入")  
+618实时线报QQ群：[点击加入QQ群](https://jq.qq.com/?_wv=1027&k=JuvO5aov "点击加入")  
 微信群，扫码添加微信邀请加入，备注：线报  
 ![](https://github.com/omxmo/xb/blob/main/wx.png)
 
