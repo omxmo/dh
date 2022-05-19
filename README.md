@@ -2,6 +2,7 @@
 ### 实时线报
 |更新时间|活动线报|参与方式|
 | :------------: | :------------: | :------------: |
+|5月19日|`无门槛立减5元神券` 高德打车5+3+2无门槛券|[点击链接](https://cache.gaode.com/activity/partner/2021PartnerTaxiGetNew/index.html?gd_from=4wi4Fjj613C "点击链接")|
 |5月18日|`1元得京东Plus会员年卡` 小鹏汽车试驾可花1元得京东Plus会员年卡|[点击链接](https://u.jd.com/EL7iqyW "点击链接")|
 |5月18日|`两箱到手69元` 认养一头牛低脂纯牛奶，补充营养低热量|[点击链接](https://s.click.taobao.com/EaKjnXu "点击链接")|
 |5月17日|`程序员护眼` 修正蓝莓叶黄素片近视护眼保健14.9元|[点击链接](https://s.click.taobao.com/1fdXdXu "点击链接")|
