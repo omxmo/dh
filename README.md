@@ -3,6 +3,7 @@
 ### 实时线报
 |更新时间|活动线报|参与方式|
 | :------------: | :------------: | :------------: |
+|5月24日|`1分购` 抖音1分钱好物|[点击链接](https://xvs6xj9fgl.kuaizhan.com/?MD2dJ5yP)|
 |5月24日|`1元抵618元` 京东预售|[点击链接](https://u.jd.com/JMgvgNd)|
 |5月22日|`免费奶茶` 免费喝COCO奶茶|[点击链接](https://mp.weixin.qq.com/s/51g1YBRX3-tZ3hHzoqLH2Q)|
 |5月20日|`最高66元红包` 美团外卖红包|[点击链接](https://xvs6xj9fgl.kuaizhan.com/?MDw01aOu)|
