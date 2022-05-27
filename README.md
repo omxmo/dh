@@ -3,6 +3,7 @@
 ### 实时线报
 |更新时间|活动线报|参与方式|
 | :------------: | :------------: | :------------: |
+|5月27日|`免费会员` 京东到家会员|京东APP—我的Puls进去—吃喝玩乐—为你推荐|
 |5月26日|`打卡0元购` 错题打印机-喵喵机P1D|[点击链接](https://www.xiaohongshu.com/barley/ssr/sale_event/vendor/5f704f87b04e7f00011ae7f2/event/877df818ce6c4543ba431cc57129d9de?naviHidden=yes&naviStartedAt=1653482435818&naviFrom=StorePage&isUnicomKing=false&themeType=default)|
 |5月24日|`1分购` 抖音1分钱好物|[点击链接](https://xvs6xj9fgl.kuaizhan.com/?MD2dJ5yP)|
 |5月24日|`1元抵618元` 京东预售|[点击链接](https://u.jd.com/JMgvgNd)|
